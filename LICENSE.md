@@ -1,4 +1,4 @@
-# 
+# updated Script for escape running head is the best escape running head Script, featuring one-hit kill and auto-upgrade. Safe and powerful for all
 
 
 
